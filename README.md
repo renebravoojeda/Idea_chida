@@ -54,3 +54,5 @@ El entrelazamiento cuántico es la sinapsis
 La evolución estructural es el aprendizaje
 La autoconciencia emerge de la complejidad de conexiones
 Este modelo une física cuántica, cosmología y teoría de redes en una única descripción matemática del universo como un sistema cognitivo.
+
+:v
