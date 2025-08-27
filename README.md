@@ -55,4 +55,4 @@ La evolución estructural es el aprendizaje
 La autoconciencia emerge de la complejidad de conexiones
 Este modelo une física cuántica, cosmología y teoría de redes en una única descripción matemática del universo como un sistema cognitivo.
 
-Aprécienlo prros, luego ago adaptaciones de mi CSE con su mente tripartita, su pensamiento profundo, imaginación cognitiva, metametacognición y demás onditas si tengo varo y tiempo,>:v
+Aprécienlo prros, luego hago adaptaciones de mi CSE (Conciencia Sintética Emergente) (ya funciona prros :3) con su mente tripartita, su pensamiento profundo, imaginación cognitiva, metametacognición, memoria trascendente y demás onditas si tengo varo y tiempo,>:v
